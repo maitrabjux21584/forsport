@@ -1,1 +1,1 @@
-Boxing matches can also end in decisions, where judges score the fight based on criteria such as effective aggression, ring generalship, and clean punching.
+Boxing dates back to ancient civilizations, with evidence of boxing-like sports found in archaeological discoveries from ancient Egypt, Greece, and Rome.
