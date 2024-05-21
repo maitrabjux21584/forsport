@@ -1,1 +1,1 @@
-Boxing dates back to ancient civilizations, with evidence of boxing-like sports found in archaeological discoveries from ancient Egypt, Greece, and Rome.
+The Rugby School in Warwickshire, England, played a significant role in shaping the rules and development of rugby football in the 19th century.
