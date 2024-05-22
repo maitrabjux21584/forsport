@@ -1,1 +1,1 @@
-The Rugby School in Warwickshire, England, played a significant role in shaping the rules and development of rugby football in the 19th century.
+Technical knockouts (TKOs) occur when a referee stops a fight due to one fighter being unable to defend themselves or being deemed unfit to continue.
