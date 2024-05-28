@@ -1,1 +1,1 @@
-Each game consists of three periods, each lasting 20 minutes, with a 15-minute intermission between periods. Overtime periods are played if the score is tied at the end of regulation.
+Goaltenders, or goalies, are specialized players who defend their team's goal and are equipped with larger pads, gloves, and blockers to stop shots from opposing players.
