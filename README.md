@@ -1,1 +1,1 @@
-Rugby union features two main variations: fifteens, played with 15 players per team, and sevens, played with seven players per team on a smaller field.
+Rugby league originated as a breakaway from rugby union in 1895, with clubs in northern England forming the Northern Rugby Football Union (later Rugby Football League) due to disputes over player compensation.
