@@ -1,1 +1,1 @@
-Rugby league originated as a breakaway from rugby union in 1895, with clubs in northern England forming the Northern Rugby Football Union (later Rugby Football League) due to disputes over player compensation.
+Ice hockey made its Olympic debut at the 1920 Summer Olympics in Antwerp, Belgium, and has been a regular Olympic sport since the 1924 Winter Olympics.
