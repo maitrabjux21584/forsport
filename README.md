@@ -1,1 +1,1 @@
-Ice hockey made its Olympic debut at the 1920 Summer Olympics in Antwerp, Belgium, and has been a regular Olympic sport since the 1924 Winter Olympics.
+Each game consists of three periods, each lasting 20 minutes, with a 15-minute intermission between periods. Overtime periods are played if the score is tied at the end of regulation.
