@@ -1,1 +1,1 @@
-Patrick Roy, known for his exceptional goaltending skills, holds the NHL record for the most career wins by a goaltender, with 551 wins over his career.
+The Montreal Canadiens hold the record for the most Stanley Cup championships, with 24 titles won between 1916 and 1993.
