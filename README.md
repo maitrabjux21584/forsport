@@ -1,1 +1,1 @@
-A knockout (KO) occurs when a fighter is knocked down and unable to get up and continue fighting within a specified time frame, usually 10 seconds.
+Goaltenders, or goalies, are specialized players who defend their team's goal and are equipped with larger pads, gloves, and blockers to stop shots from opposing players.
