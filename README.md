@@ -1,1 +1,1 @@
-Goaltenders, or goalies, are specialized players who defend their team's goal and are equipped with larger pads, gloves, and blockers to stop shots from opposing players.
+The butterfly style of goaltending, where goalies drop to the ice and spread their legs to cover the lower portion of the net, is widely used to block shots.
