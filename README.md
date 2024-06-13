@@ -1,1 +1,1 @@
-The butterfly style of goaltending, where goalies drop to the ice and spread their legs to cover the lower portion of the net, is widely used to block shots.
+The Rugby School in Warwickshire, England, played a significant role in shaping the rules and development of rugby football in the 19th century.
