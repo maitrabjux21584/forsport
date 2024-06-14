@@ -1,1 +1,1 @@
-The Rugby School in Warwickshire, England, played a significant role in shaping the rules and development of rugby football in the 19th century.
+Professional boxing organizations, such as the World Boxing Association (WBA), World Boxing Council (WBC), and International Boxing Federation (IBF), sanction world championship bouts in various weight divisions.
