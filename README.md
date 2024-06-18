@@ -1,1 +1,1 @@
-The IIHF World Championship is an annual tournament featuring national teams from around the world competing for the title of world champion.
+Hockey sticks are typically made of wood, fiberglass, or carbon fiber composite materials, with varying degrees of flexibility and durability.
