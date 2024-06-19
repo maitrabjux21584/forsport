@@ -1,1 +1,1 @@
-The IIHF World Championship is an annual tournament featuring national teams from around the world competing for the title of world champion.
+The International Ice Hockey Federation (IIHF) was founded in 1908 to govern international ice hockey competitions and promote the sport worldwide.
