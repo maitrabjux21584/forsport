@@ -1,1 +1,1 @@
-The International Ice Hockey Federation (IIHF) was founded in 1908 to govern international ice hockey competitions and promote the sport worldwide.
+Boxing has been a part of the Olympic Games since the ancient Olympics in Greece, and has been a regular Olympic sport since the 1904 Summer Olympics in St. Louis, Missouri.
