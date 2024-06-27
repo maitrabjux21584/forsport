@@ -1,1 +1,1 @@
-Hockey sticks are typically made of wood, fiberglass, or carbon fiber composite materials, with varying degrees of flexibility and durability.
+Hockey players wear protective equipment, including helmets, shoulder pads, elbow pads, gloves, shin guards, and skates, to protect against injuries during play.
