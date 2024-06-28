@@ -1,1 +1,1 @@
-Hockey players wear protective equipment, including helmets, shoulder pads, elbow pads, gloves, shin guards, and skates, to protect against injuries during play.
+Ice hockey pucks are made of rubber and weigh approximately six ounces, with a diameter of three inches, and are used to score goals by shooting them into the opposing team's net.
