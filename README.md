@@ -1,1 +1,1 @@
-Body checking, where players use their bodies to block or knock opponents off the puck, is a legal and integral part of ice hockey, especially in North America.
+Ice hockey pucks are made of rubber and weigh approximately six ounces, with a diameter of three inches, and are used to score goals by shooting them into the opposing team's net.
