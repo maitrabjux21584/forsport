@@ -1,1 +1,1 @@
-The British and Irish Lions is a prestigious rugby union team that tours countries like New Zealand, South Africa, and Australia every four years, playing test matches against the national teams of those countries.
+New Zealand's national rugby team, the All Blacks, is one of the most successful rugby teams in history, having won the Rugby World Cup three times (1987, 2011, 2015).
