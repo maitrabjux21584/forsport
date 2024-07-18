@@ -1,1 +1,1 @@
-Muhammad Ali, widely regarded as one of the greatest boxers of all time, won an Olympic gold medal in 1960 and became a three-time world heavyweight champion.
+Boxing gloves are often customized with the fighter's name, nickname, or country flag, and are an integral part of a boxer's identity and equipment.
