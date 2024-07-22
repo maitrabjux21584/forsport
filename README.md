@@ -1,1 +1,1 @@
-Boxing gloves are often customized with the fighter's name, nickname, or country flag, and are an integral part of a boxer's identity and equipment.
+New Zealand's national rugby team, the All Blacks, is one of the most successful rugby teams in history, having won the Rugby World Cup three times (1987, 2011, 2015).
