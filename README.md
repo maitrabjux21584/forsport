@@ -1,1 +1,1 @@
-Hockey players wear protective equipment, including helmets, shoulder pads, elbow pads, gloves, shin guards, and skates, to protect against injuries during play.
+The Hockey Hall of Fame, located in Toronto, Canada, honors the greatest players, coaches, referees, and builders of the game, preserving their legacies for future generations.
