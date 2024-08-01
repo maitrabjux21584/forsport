@@ -1,1 +1,1 @@
-The modern sport of boxing evolved in England during the 18th century, with the first documented boxing rules established in 1743 by the London Prize Ring rules.
+Boxing gloves are often customized with the fighter's name, nickname, or country flag, and are an integral part of a boxer's identity and equipment.
